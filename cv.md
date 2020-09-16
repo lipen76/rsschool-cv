@@ -7,7 +7,7 @@ Gdańsk 80-175
 Poland    
 
 * **email:** sudnikdmitrij@gmail.com
-* **tel:** +48 791 250 598 
+* **tel:** +48-791-250-598 
 
 About me
 ---------
